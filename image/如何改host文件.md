@@ -18,5 +18,5 @@
 ### 18+哔咔漫画下载[点击进入](https://bkbwfjvm.com?ch=oebg21bk)
 ### 18+ 91次元下载[点击进入](https://91yfhnqp.com/?ch=oebg21cy)
 ### 18+糖心下载[点击进入](https://txs705ut.com/?_c=oebg31tx)
-### 18+海角社区[点击进入](https://d.sh51ne.com/?channel=ykhjqq1)
+### 18+海角社区[点击进入](https://d.hj58gd.com/?channel=ykhjqq1)
 
